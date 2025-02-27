@@ -1,6 +1,6 @@
 ## Hi there 👋🐶
 
-Pawtronics is still finalizing development & beginning to emerge from stealth mode, at this stage any feedback is welcome.
+Dogtronics is still finalizing development & beginning to emerge from stealth mode, at this stage any feedback is welcome.
 If you are in Melbourne, VIC. Australia or San Diego, CA. USA and would like join our Closed BETA (*limited to 100 doggo's!!) 
 please watch this page or connect on either Youtube, or LinkedIn for special pre-availability announcements.
 
